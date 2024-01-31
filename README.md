@@ -1,5 +1,6 @@
 
-![image](https://github.com/Abhishek-Sachan/OnlineNews/assets/139737618/ad962fdf-495f-4983-ba56-ce1c84c6ab3d)
+![image](https://github.com/Abhishek-Sachan/OnlineNews/assets/139737618/91713e4b-a371-4e09-94ac-f8fc4a8f35e4)
+
 
 ![image](https://github.com/Abhishek-Sachan/OnlineNews/assets/139737618/4d5f912b-2bc4-4fdb-ac35-98d2c22f7cee)
 
